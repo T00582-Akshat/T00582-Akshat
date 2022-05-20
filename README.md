@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @T00582-Akshat
-- 👀 I’m interested in make the attractive application in a simplest coding style.
+- 👀 I’m interested in make the attractive application in a cool coding style.
 - 🌱 I’m currently learning as well as teaching.
 - 💞️ I’m looking to collaborate with my friends.
 - 📫 How to reach me is very simple. Just contact me: +91 8178675901
